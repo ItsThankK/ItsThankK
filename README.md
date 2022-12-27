@@ -1,6 +1,6 @@
 # 👋 Hi, I’m Neibagha Kingsway ThankGod
 - 👀 I’m interested in anything _TECH_
-- 👨🏿‍💻 I’m currently learning ➡️ Web 3.0 at genesys-learnable ➡️ Fullstack Software Engineering at ALX Africa 
+- 👨🏿‍💻 I’m currently learning ➡️ Web 3.0 at genesys-learnable
 - 📫 **Reach me on**⤵️ 
 - -><a href=”mailto:tkingsway3@gmail.com”>tkingsway3@gmail.com</a>
 - ->[LinkedIn](https://www.linkedin.com/in/thankgod-neibagha-kingsway-564a95253/)
