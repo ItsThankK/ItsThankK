@@ -1,4 +1,4 @@
-                                    Happy New Year!!! 🥳
+                                     Happy New Year!!! 🥳
 
 # 👋 Hi, I’m Neibagha Kingsway ThankGod
 - 👀 I’m interested in anything _TECH_
