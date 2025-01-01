@@ -1,3 +1,5 @@
+                                    Happy New Year!!! 🥳
+
 # 👋 Hi, I’m Neibagha Kingsway ThankGod
 - 👀 I’m interested in anything _TECH_
 - 👨🏿‍💻 I’m currently learning ➡️ Web 3.0 & FrontEnd
