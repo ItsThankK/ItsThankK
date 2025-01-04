@@ -1,5 +1,3 @@
-# 👋 Hi, I’m Neibagha Kingsway ThankGod
-
 ## This profile is in Revamp mode! 🚧👷‍♂️🏗
 
 <!---
