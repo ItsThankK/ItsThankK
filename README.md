@@ -1,4 +1,4 @@
-## This profile is in Revamp mode! 🚧👷‍♂️🏗
+## GM World! 🚧👷‍♂️🏗
 
 <!---
 ItsThankK/ItsThankK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
